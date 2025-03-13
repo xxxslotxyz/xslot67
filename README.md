@@ -9,7 +9,7 @@
 <p>🔥Xslot, yeni üyelere özel DEV BONUSLAR ve sınırsız eğlence sunuyor! Kazancınızı ikiye katlama fırsatını kaçırmayın! Ürestelik, siteye üyelik aşaması son derece kolay ve hızlı! 🚀</p>
 
 <a href="https://cutt.ly/KeaKTCbc" title="Xslot Güncel Giriş">
-    <img src="https://i.ibb.co/xSQ1Ktxq/photo-2025-03-07-16-48-21.jpg" alt="Xslot Güncel Giriş" class="bonus-img">
+    <img src="https://i.ibb.co/BtMhhf6/g-venligiris.jpg" alt="Xslot Güncel Giriş" class="bonus-img">
 </a>
 
 <h2>💎Xslot’in Avantajları</h2>
@@ -23,5 +23,5 @@
 <p>💎Xslot, sadece bahis yapmak değil, aynı zamanda eğlenceyi doruklarda yaşamanız için tasarlandı! Kullanıcı dostu arayüzü ve 7/24 aktif canlı destek ekibiyle her an yanınızda. Şimdi üye olun, şansınızı katlayın ve kazanmaya hemen başlayın!</p>
 
 <a href="https://cutt.ly/KeaKTCbc" title="Xslot Güncel Giriş">
-    <img src="https://i.ibb.co/jkKttdZZ/photo-2025-03-07-16-48-27.jpg" alt="Xslot Bonus Kazan" class="bonus-img">
+    <img src="https://i.ibb.co/BtMhhf6/g-venligiris.jpg" alt="Xslot Bonus Kazan" class="bonus-img">
 </a>
